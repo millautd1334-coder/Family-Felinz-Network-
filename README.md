@@ -2,6 +2,8 @@
 
 Adult Animated Comedy by: Yuri tha Jury & the family Felinz 
 
+Family Felinz Network The Movie by YURI tha Jury is a adult animated comedy 
+Think Boondocks meets Rick and Morty, with the lyrical fire of Atlanta and the swagger of a midnight cypher.
 The Family Felinz Network is a bold, irreverent adult animated comedy that dives headfirst into the outrageous, high-stakes world of hip-hop—through the eyes of two rap superstar brothers yuri tha Jury
 This is a animated adult comedy movie as a previous novel remake from the sequel fame from Yuri tha Jury
 
