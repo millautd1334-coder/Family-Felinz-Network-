@@ -1,5 +1,4 @@
-# Family Felinz Network 
-(Adult Animated Comedy)
+# Family Felinz Network (Adult Animated Comedy)
 
 Adult Animated Comedy by: Yuri tha Jury & the family Felinz 
 
