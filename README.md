@@ -20,3 +20,7 @@ Artist,Writer,Author,Producer,Actor,Founder & CEO of Munchies Ent /Newsline clot
 
 # Straight Shooter (1 half of Family Felinz)  
 https://www.google.com/search?q=straight+Shooter+1+half+of+Family+Felinz&sca_esv=e77f9c08ad4d25ad&sxsrf=AE3TifPBui6sOrzHQdrhp1L813Wp3zTIDQ%3A1755400039470&ei=Z0ehaO69HMjcwN4Pq6vN0AM&oq=straight+Shooter+1+half+of+Family+Felinz&gs_lp=EhNtb2JpbGUtZ3dzLXdpei1zZXJwIihzdHJhaWdodCBTaG9vdGVyIDEgaGFsZiBvZiBGYW1pbHkgRmVsaW56MggQABiwAxjvBTIIEAAYsAMY7wUyCxAAGLADGKIEGIkFMggQABiwAxjvBTIIEAAYsAMY7wVI_g5QAFgAcAB4AJABAJgBaqABaqoBAzAuMbgBA8gBAJgCAaACfZgDAIgGAZAGBZIHAzAuMaAHtAOyBwMwLjG4B33CBwMzLTHIBxI&sclient=mobile-gws-wiz-serp
+
+Straight Shooter / AKA / Torre Trice Born: 11-04-1982
+
+Artist, Actor, Author, Producer, Executive of munchies Entertainment ,NewsLine Clothing, mankraft Cinema and now one of the most influential Artists of his generation.
