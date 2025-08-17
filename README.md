@@ -8,6 +8,8 @@ https://www.imdb.com/title/tt37540233/?ref_=ext_shr
 
 https://www.themoviedb.org/movie/1524801-family-felinz-network?language=en-US
 
+# Family Felinz Network - Trailer #2 ( https://youtu.be/IKPcC4tTOrY?si=a-dY1P-GnwLbstld )
+
 # Family Felinz
 
 Family Felinz is a musical group, specifically a Hip-Hop/Rap duo, consisting of Yuri Tha Jury and Straight Shooter. They are known for songs like "Peacan Season", "Top Notch", and "No more broke", and their albums include "Gemini" and "Street Musik". They also have a project called "Family Felinz Network - (The Movie)", which is described as an adult animated comedy series...
